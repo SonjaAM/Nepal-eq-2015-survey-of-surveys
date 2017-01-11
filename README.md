@@ -1,1 +1,1 @@
-# Nepal-eq-2015-survey-of-surveys
+# Nepal-eq-2015-survey-of-surveys-EXPLORING
